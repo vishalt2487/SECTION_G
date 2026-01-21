@@ -139,7 +139,8 @@ If you like this project:
 
 Open source grows because of people like **you** ❤️
 This is ayush kumar yes i am
-This project is awesome.
+This project is awesome
+Completed
 
 ---
 
