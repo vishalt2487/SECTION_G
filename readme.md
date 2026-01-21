@@ -138,7 +138,7 @@ If you like this project:
 ### 🎉 Happy Contributing!
 
 Open source grows because of people like **you** ❤️
-This is ayush kumar yes i am
+This is Vishal Tiwari.
 
 ---
 
